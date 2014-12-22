@@ -38,113 +38,69 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
+their kind,
+will wind•A besom of byrche for babes very feete,A long lasting lybbet for loubbes as méTo the right honorable and my singular good
+Lady Elizabeth Countes of Shrewsbury, Thomas Harman wish
+1. The Epistle to the Reader.
 
-1. ¶ A Upryght man, Cap. 2.
+1. A Rufflar.
 
-    _ Here followeth their pelting speeche.
+    _ ¶ A Upryght man, Cap. 2.
 
-1. ¶ A Hoker or Anglear. Cap. 3.
+    _ ¶ A Hoker or Anglear. Cap. 3.
 
-    _ Here followeth their pelting speeche.
+    _ ¶ A Roge. Cap. 4.
 
-1. ¶ A Roge. Cap. 4.
+    _ ¶ A Wylde Roge. Cap. 5.
 
-    _ Here followeth their pelting speeche.
+    _ A Prigger of Prauncers. Cap. 6.
 
-1. ¶ A Wylde Roge. Cap. 5.
+    _ ¶ A Pallyard. Cap. 7.
 
-    _ Here followeth their pelting speeche.
+    _ A Frater. Cap. 8.
 
-1. A Prigger of Prauncers. Cap. 6.
+    _ ¶ A Abraham man. Cap. 9.
 
-    _ Here followeth their pelting speeche.
-
-1. ¶ A Pallyard. Cap. 7.
-
-    _ Here followeth their pelting speeche.
-
-1. A Frater. Cap. 8.
-
-    _ Here followeth their pelting speeche.
-
-1. ¶ A Abraham man. Cap. 9.
-
-    _ Here followeth their pelting speeche.
-
-1. ¶ A freshe water Mariner or Whip•acke.
+    _ ¶ A freshe water Mariner or Whip•acke.
 Cap. 10.
 
-    _ Here followeth their pelting speeche.
+    _ A counterfet Cranke. Cap. 11.
 
-1. A counterfet Cranke. Cap. 11.
+    _ A Dommerar. Cap. 12.
 
-    _ Here followeth their pelting speeche.
+    _ A Dronken Tinckar. Cap. 13.
 
-1. A Dommerar. Cap. 12.
+    _ ¶ A Swadder or Pedler. Cap. 14.
 
-    _ Here followeth their pelting speeche.
+    _ A Iarke man, and a Patrico. Cap. 15.
 
-1. A Dronken Tinckar. Cap. 13.
+    _ A Demaunder for glymmar. Cap. 16.
 
-    _ Here followeth their pelting speeche.
+    _ A Baudy Basket. Cap. 17.
 
-1. ¶ A Swadder or Pedler. Cap. 14.
+    _ A Autem Morte. Cap. 18.
 
-    _ Here followeth their pelting speeche.
+    _ ¶ A Walking Morte. Cap. 19.
 
-1. A Iarke man, and a Patrico. Cap. 15.
+    _ A Doxe. Cap. 20.
 
-    _ Here followeth their pelting speeche.
+    _ A Dell. Cap. 21.
 
-1. A Demaunder for glymmar. Cap. 16.
+    _ A Kynching Morte. Cap. 22.
 
-    _ Here followeth their pelting speeche.
+    _ A Kynchen Co. Cap. 23.
 
-1. A Baudy Basket. Cap. 17.
+    _ Their vsage in the night. Cap. 24.
 
-    _ Here followeth their pelting speeche.
+    _ The names of the vpright men, Roges, and Pallyards.
 
-1. A Autem Morte. Cap. 18.
+      * Here followeth their pelting speeche.
 
-    _ Here followeth their pelting speeche.
-
-1. ¶ A Walking Morte. Cap. 19.
-
-    _ Here followeth their pelting speeche.
-
-1. A Doxe. Cap. 20.
-
-    _ Here followeth their pelting speeche.
-
-1. A Dell. Cap. 21.
-
-    _ Here followeth their pelting speeche.
-
-1. A Kynching Morte. Cap. 22.
-
-    _ Here followeth their pelting speeche.
-
-1. A Kynchen Co. Cap. 23.
-
-    _ Here followeth their pelting speeche.
-
-1. Their vsage in the night. Cap. 24.
-
-    _ Here followeth their pelting speeche.
-
-1. The names of the vpright men, Roges, and Pallyards.
-
-    _ Here followeth their pelting speeche.
-
-1. ¶ The vpright Cofe cateth to the Roge,
+    _ ¶ The vpright Cofe cateth to the Roge,
 The vpright man speaketh to the roge.
-
-    _ Here followeth their pelting speeche.
 Imprinted at London by Henry Middleton
 dwelling in Fletestreat at the signe
 of the Faucon: and are t
-    _ Here followeth their pelting speeche.
-
 **Types of content**
 
   * There are 85 **verse** lines!
